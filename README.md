@@ -5,8 +5,8 @@
 
 ### - The cheapest shop among all SMM markets.
 
-### - [Website](https://kichi779shop.mysellix.io/) 
-### - [Etsy](https://www.etsy.com/shop/Kichi779Shop)
+### - [Website](https://kichi779shop.mysellix.io/) ( Crypto, Perfectmoney payment)
+### - [Etsy](https://www.etsy.com/shop/Kichi779Shop) (Secure payment available by credit card)
 ### - [Discord](https://discord.gg/AFV9m8UXuT) 
 
 Our digital market offers SMM services that will make you popular on social media platforms! We increase your social media presence with services such as likes, followers and views on popular social media platforms such as Youtube, Twitch and Instagram. Visit now to take advantage of our high quality services at the most affordable prices!
